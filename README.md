@@ -1,7 +1,7 @@
 # DepremAcilYardim
 DepremAcilYardim
 
-APK -> https://s2.dosya.tc/server22/xox1bj/DepremAcilYardim.apk.html
+İndir -> https://s2.dosya.tc/server22/xox1bj/DepremAcilYardim.apk.html
 
 
 Acil Numaralar             | Afet Bilgiler
